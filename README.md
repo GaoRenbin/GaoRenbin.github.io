@@ -1,5 +1,2 @@
 # GaoRenbin.github.io
 
-
-
-ghghgh
