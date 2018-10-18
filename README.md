@@ -1,3 +1,3 @@
 # GaoRenbin.github.io
 
-无敌高哥！
+无敌高哥
